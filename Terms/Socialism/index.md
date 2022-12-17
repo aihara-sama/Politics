@@ -1,0 +1,5 @@
+# Socialism
+
+> ### `Description`
+>
+> A political and economic theory of social organization which advocates that the means of production, distribution, and exchange should be owned or regulated by the community as a whole
